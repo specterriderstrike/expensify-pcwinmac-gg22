@@ -1,4 +1,4 @@
-# 
+# Premium Expensify scripts pour Mac OS | Sécurisé Expensify scripts pour PC Windows. Avec flux de travail d'approbation et rapports financiers — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
